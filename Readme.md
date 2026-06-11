@@ -1,1 +1,1 @@
-This website has moved to shanksmakesstuff.com permanently. 
+This website has moved to [shanksmakesstuff.com](shanksmakesstuff.com) permanently. 
